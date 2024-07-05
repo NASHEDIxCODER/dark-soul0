@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @dark-soul0
 - 👀 I’m interested in internships
-- i'm currently studying in 2nd year b.tech CSE
+- i'm currently studying in 3rd year b.tech CSE
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... 
