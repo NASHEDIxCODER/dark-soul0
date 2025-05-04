@@ -1,4 +1,5 @@
-- 👋 Hi, I’m @dark-soul0
+- 👋 Hi, I’m @NASHEDIxCODER
+- IT'S FUNNY USERNAME DON'T JUDGE
 - 👀 I’m interested in internships
 - i'm currently studying in 3rd year b.tech CSE
 - 🌱 I’m currently learning 
